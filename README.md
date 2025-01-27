@@ -32,8 +32,8 @@ Benefícios: Programas de fidelidade para clientes que utilizam Pix ou fazem com
 Promoções Sazonais: Campanhas temáticas (ex.: descontos em jaquetas no inverno ou promoções de camisetas no verão) podem aumentar o volume de vendas.
 Esses insights permitem que você:
 
-Crie estratégias mais inteligentes de marketing e vendas.
+Criar estratégias mais inteligentes de marketing e vendas.
 Personalize a experiência do cliente.
 Aumente a retenção e fidelidade.
-Melhore a eficiência operacional e o estoque.
-Se precisar de um relatório mais visual com gráficos ou algo mais refinado, me avise! 🚀
+Melhorar a eficiência operacional e o estoque.
+
